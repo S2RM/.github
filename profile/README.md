@@ -1,4 +1,4 @@
-![Agência Ares](https://media.licdn.com/dms/image/v2/D4D3DAQHTdlVO1_O3Iw/image-scale_191_1128/B4DZuaS5RrI8Ag-/0/1767820203882/ares_marketing_tecnologia_cover?e=1768438800&v=beta&t=5XxFjD2StFEjMw90jwSGmFRiqoMiMJNd8hevXqDwpS4)
+![Agência Ares](https://media.licdn.com/dms/image/v2/D4D3DAQHTdlVO1_O3Iw/image-scale_191_1128/B4DZuaS5RrI8Ag-/0/1767820203882/ares_marketing_tecnologia_cover?e=1769292000&v=beta&t=_CaXFFjF6UZ9xLZIBTAZE6bDj-9Yf98rdtlPYmh3Scg)
 
 # Bem-vindo à Agência Ares!
 
