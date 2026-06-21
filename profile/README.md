@@ -23,4 +23,4 @@ demandas específicas de cada cliente.
 ---
 
 ### Contatos:
-contato@agenciaares.com.br | [LinkedIn](https://www.linkedin.com/company/ares-marketing-tecnologia/?viewAsMember=true)
+ti@agenciaares.com.br | [LinkedIn](https://www.linkedin.com/company/ares-marketing-tecnologia/?viewAsMember=true)
